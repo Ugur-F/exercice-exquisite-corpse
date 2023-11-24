@@ -16,3 +16,6 @@ Nolan allait partir en Amérique du Sud pour devenir le prochain Pablo Escobar. 
 #### Le cartel
 
 La rencontre fut rûde; criminel accomplis, récidiviste, hommes demains pret à tout. Ce n'était pas dans un milieu tendre qu'il faisait son entrée. Nolan commenca à réaliser que sa route dorée ~~parsemmée de neige~~ ne serait pas une série Netfix. Il était loin des club et de la fête et bien plus proche de la misère et du fanger qu'il ne l'aurait cru.
+
+"Plomo o plata", c'est la phrase souvent utilisé pour contraidre ou menacer les gens, en leur laissant le choix entre accepter de l'argent ou faire face à la violence. à la mort.
+<img src="https://i.servimg.com/u/f58/20/32/00/83/45a85510.jpg" heigth=20px width=20px> 
