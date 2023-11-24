@@ -11,3 +11,5 @@ Il s'était saisi du sac posé sur la chaise de son bureau. Son départ n'était
 
 *à suivre..*
 
+Nolan allait partir en Amérique du Sud pour devenir le prochain Pablo Escobar. Après des semaines a s'entrainer, des tonnes de variétés de cocaines différentes il était fin prêt. Alors, il prit sa valise ~~avec double fond~~ et se mit en route pour le cartel de **medellin** 
+
