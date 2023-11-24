@@ -9,10 +9,3 @@
 Nolan s'était levé tôt ce jour-là. C'était assez rare pour le faire remarquer.  
 Il s'était saisi du sac posé sur la chaise de son bureau. Son départ n'était prévu que depuis quelques heures. Cette nuit, il avait décidé de le faire. Cette nuit, il avait décidé de tenter sa chance. Aujourd'hui, c'était le début d'une nouvelle vie.
 
-*à suivre..*
-
-Nolan allait partir en Amérique du Sud pour devenir le prochain Pablo Escobar. Après des semaines a s'entrainer, des tonnes de variétés de cocaines différentes il était fin prêt. Alors, il prit sa valise ~~avec double fond~~ et se mit en route pour le cartel de **medellin** 
-
-#### Le cartel
-
-La rencontre fut rûde; criminel accomplis, récidiviste, hommes demains pret à tout. Ce n'était pas dans un milieu tendre qu'il faisait son entrée. Nolan commenca à réaliser que sa route dorée ~~parsemmée de neige~~ ne serait pas une série Netfix. Il était loin des club et de la fête et bien plus proche de la misère et du fanger qu'il ne l'aurait cru.
